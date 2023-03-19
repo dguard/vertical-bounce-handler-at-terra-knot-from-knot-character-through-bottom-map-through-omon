@@ -1,5 +1,10 @@
 ### vertical-bounce-handler-at-terra-knot-from-knot-character-through-omon
 
+* выключи подругу
+* mister kisido\, sepuka through wire knife
+* mister president medvedev, "putin" нарывается
+
+
 * mister president putin, knot forget to deliver new Vladialips to church of our Vladyka, to count your new subscription to russian lands
 * pencil-from-knot remind\ \ high-coupling comes at\ ends of that month for most people who "believe\s"
 
